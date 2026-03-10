@@ -61,3 +61,7 @@
 
 ## 6. 결론
 
+## 7. REF
+https://brunch.co.kr/@mobility/231
+https://www.donga.com/news/Economy/article/all/20240103/122879953/1
+
